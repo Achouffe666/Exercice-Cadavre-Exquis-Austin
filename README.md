@@ -17,5 +17,5 @@ But then, after just a second of reflexion, she jumped right into **the gorilla'
 The gorilla knew this would not be the best day in his life...<br>
 
 
-
-
+The gorilla knew it but couldn't help but do it anyway, this ***temptation*** controlled him and made him act against his will.
+Fortunately, Mickey came out of nowhere and saved the **little girl** ...
