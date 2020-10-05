@@ -6,5 +6,11 @@ Indeed, the lil'piggy, named __Rosa__ had entered the market "labyrinthic grocer
 Rosa looked for the exit but after two hours, she started to panic and cried. She really wanted to go home.
 As she thought she would never see the sun again, a giant gorilla appeared before her and told her :
 
+You will never go home and you will never see your parents again because **I ate them**, unless I make you my next meal!
+
+
+The scared little girl cry ...
+
+
 
 
