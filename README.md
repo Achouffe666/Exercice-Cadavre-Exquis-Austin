@@ -13,7 +13,7 @@ The scared little girl cry ...
 
 
 But then, after just a second of reflexion, she jumped right into **the gorilla's mouth** !<br>
-"YOU'RE GONNA GIVE'EM BACK TO ME YOU STUPID MONKEY !!!" she screamed.<br>
+"***YOU'RE GONNA GIVE'EM BACK TO ME YOU STUPID MONKEY !!!***" she screamed.<br>
 The gorilla knew this would not be the best day in his life...<br>
 
 
