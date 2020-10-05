@@ -16,6 +16,7 @@ But then, after just a second of reflexion, she jumped right into **the gorilla'
 "***YOU'RE GONNA GIVE'EM BACK TO ME YOU STUPID MONKEY !!!***" she screamed.<br>
 The gorilla knew this would not be the best day in his life...<br>
 
+=====
+I didn't read all the story
 
-
-
+=====
